@@ -18,7 +18,6 @@
 
 - ⚡ Fun fact **I think I can bypass all anti cheats with ease**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
